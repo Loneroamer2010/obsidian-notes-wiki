@@ -1,0 +1,2 @@
+Swift Heart now has a relaxed and empathetic disposition, but she will be the first to tell you that she was a passionate adventure-seeker in her youth. She’ll gladly tell you a tale or two about her dangerous treks through jungles filled with giant venomous snakes, near-death experiences wandering in endless desert dunes, or even times spent on the high seas with her Tabaxi sea captain friend, Stands in Tar.
+# ![[Swift Heart.png]]

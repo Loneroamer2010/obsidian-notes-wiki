@@ -1,0 +1,4 @@
+When Mount Hotenow erupted, a giant canyon into a Spellplague-laden section of the Underdark was torn open in the southeastern quarter of Neverwinter. This portion of the city was essentially levelled in the process. From this giant chasm all manner of unnatural beasts emerged. Any that approached the chasm would experience anxiety and other unpleasant mental effects. A wall was erected around the region to contain the horrors that arose from the chasm. 
+
+With immense effort and expense, [[Lord Protector Neverember|Neverember]] was able to have the chasm sealed shut with powerful magic. The chasm sealed, the district was left as not much more than levelled ruins. The area was made free for the taking. Anyone who wanted to make a settlement in the region was free to claim the land and do so. Bold settlers, particularly those too poor to do so elsewhere, are flocking to the Chasm District to build a new life for themselves.
+# ![[The Chasm.png|900]]

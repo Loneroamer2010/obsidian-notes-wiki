@@ -1,0 +1,6 @@
+Neverwinter River, known to the ancient dwarves as Nethlur, was a major river in the Sword Coast North of northwest Faerûn that flowed through the city [[Neverwinter]]. Its source was at Mount Hotenow, and it emptied into the [[Bay of Mists]] on the Sea of Swords.
+
+Neverwinter River's bright waters ran warm throughout the year, and many believed this feature was thanks to the heat produced by Mount Hotenow. Keeping the Neverwinter Wood area warm, it was the river that prevented the city of Neverwinter or its harbour from freezing during the winter.
+
+Three bridges once spanned the river in the city Neverwinter: the [[Sleeping Dragon Bridge|Sleeping Dragon]], the [[Winged Wyvern Bridge|Winged Wyvern]], and the [[Dolphin Bridge|Dolphin]], each sculpted in the form of its name. Following the eruption of Mount Hotenow in 1451 DR, only the Winged Wyvern remained functional until [[Lord Protector Neverember|Lord Dagult Neverember]] ordered the full reconstruction of Neverwinter in the late 1480s DR.
+# ![[Neverwinter River.png]]

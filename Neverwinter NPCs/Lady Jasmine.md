@@ -1,0 +1,2 @@
+Lady Jasmine, a High Elf and the Head Priestess of [[The Shard of the Moon|Selûne]], is a serene and wise figure. She is deeply devoted to the Moon Goddess, embodying grace and compassion. With her silver hair and celestial robes, she leads her followers with a gentle but firm hand, guiding them through the mysteries of the night and the protective light of the moon. She currently resided in [[The Shard of the Moon]].
+# ![[Lady Jasmine.png]]

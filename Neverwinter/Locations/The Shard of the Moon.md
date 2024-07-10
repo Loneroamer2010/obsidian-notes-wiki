@@ -1,0 +1,8 @@
+The Shard of the Moon, formerly called “The Shard of Night”, is a floating tower in the Tower District of Neverwinter. The tower has had a storied journey through both the Material Plane and Plane of Shadow.
+
+The tower began its existence as Moonshadow Hall, over a thousand miles away from Neverwinter, in the city of Yhaunn. In the late 14th century DR, the Shadovar (dwellers of Shadowfell and one of the few remaining factions of Netherese) assaulted the temple and magically tore away one of its towers and sent it to Shadowfell. The Shadovar learned they were able to manifest the tower at arbitrary locations in the mortal realms, and thus placed it strategically floating over Neverwinter during the Spellplague. The Netherese could use a portal in the tower to transport between Xinlenal and Neverwinter.
+
+The tower was darkened black and cast no shadow in the day. This was actually because the temple was magically manipulated to absorb shadow. This shadow, in turn, powered the tower’s teleportations devices. The ominous, foreboding tower looming overhead was largely avoided by all in Neverwinter as any who ventured inside would never return.
+
+In 1479 DR, adventurers raided the tower and allowed [[Lady Jasmine]] to return to the tower and perform a purification, restoring the tower to its alabaster white appearance. Now, at night when three magical shards are placed within, or below, the floating tower, a stairway of solid moonlight descends from the tower entrance. The priests of [[Gods of the Multiverse|Selûne]] will allow only trusted visitors entrance into the tower. Those particularly-trusted visitors that take a long rest in the tower find that they receive an extra healing surge until they next take a long rest.
+# ![[Shard of the Moon.jpg]]

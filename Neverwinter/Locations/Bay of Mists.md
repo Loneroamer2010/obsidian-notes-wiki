@@ -1,0 +1,2 @@
+The Bay was one of the few naturally deep ports along the Sword Coast, and sat at the mouth of the [[Neverwinter River]] where it emptied into the [Sea of Swords](https://forgottenrealms.fandom.com/wiki/Sea_of_Swords "Sea of Swords"). Thanks to the river's volcanically-warmed waters, the Bay remained ice-free in the winter.
+# ![[Bay of Mists.png]]

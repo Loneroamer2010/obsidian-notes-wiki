@@ -1,0 +1,4 @@
+Flinar Ralolar, age unknown, is a mysterious individual. Not one to volunteer much information, little is known about the wizard. What some do know, however, is that before Flinar arrived in Neverwinter, he was among the many that came to the Wave Echo Cave outside Phandalin to study the Forge of Spells (once it was cleared of malicious forces by adventurers).
+
+Flinar isn’t unfriendly, per se, just merely very flat in his demeanour. His frown seems to be more of a physical attribute of the man than an actual indication of his discontent. Flinar will even attempt to smile and warmly greet customers that enter his shop, though the expression generally comes across as awkward, insincere, and off-putting. Attempts to converse with Gigz will never result in anything more than a nod or shake of the head.
+# ![[Flinar Ralolar.png]] ![[Gigz.png]] 

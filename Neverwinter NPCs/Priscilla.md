@@ -1,0 +1,4 @@
+While extremely jovial, Priscilla will avoid giving away much personal information. How she came to possess her skills at such a young age, how she could afford such a nice shop in the Bluelake District, and her family history are all mysterious. Local residents of Bluelake will tell you the shop itself seemed to spring up from nowhere overnight.
+
+Despite being relatively new to the city, Priscilla is now well known to a large swath of Neverwinter residents as a person with great compassion. She frequently donates her goods and services to poorer Neverwinter residents that are truly in need. She even regularly makes her way down to the Chasm District to hand-deliver potions and poultices to the sick or injured.
+# ![[Priscilla.png]]

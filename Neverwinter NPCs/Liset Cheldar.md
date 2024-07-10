@@ -1,0 +1,6 @@
+Liset Cheldar, the proprietor of the [[The Moonstone Mask|Moonstone Mask]], is a captivating half-elf bard with long, wavy auburn hair and striking emerald green eyes. Her fair complexion and elegant yet practical attire make her a memorable figure in Neverwinter. Known for her enchanting voice and skilful lute playing, she is both a performer and a key figure at the renowned inn and festhall.
+
+Liset's reputation precedes her, drawing large crowds to the Moonstone Mask with her legendary performances. She is not only beloved for her musical talents but also respected for her role as an information broker, using her charm and extensive network to gather and share valuable insights. Her presence ensures the Moonstone Mask remains a hub of activity and intrigue in Neverwinter.
+
+Charismatic and confident, Liset is a natural leader with a deep sense of empathy and a strong desire to help those in need. Her chaotic good alignment drives her to challenge authority and societal norms when she sees injustice. Under her management, the Moonstone Mask is more than just an inn; it's a sanctuary for adventurers and a place where secrets are both guarded and revealed.
+![[Liset cheldar.png|200]]

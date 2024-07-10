@@ -1,0 +1,3 @@
+Bluelake, formerly called “Blacklake”, is a lake that sits in the centre of its namesake district. The lake is used for boating activities at times. However, in the summer, the lake’s level decreases dramatically and becomes somewhat more of a swamp. 
+
+The lake became particularly vile and sludge-filled after the eruption of Mount Hotenow, which filled the lake with ash. [[Lord Protector Neverember|Lord Neverember]] made dredging and restoring the lake one of his priorities. This effort seems to have been successful, and it was renamed “Bluelake”.

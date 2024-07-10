@@ -1,0 +1,2 @@
+Overseeing all [[Fuvont's Mounts and Tack]] is Venrie Fuvont, a sweet young female Firbolg whose love for animals and gentle demeanour have earned her a loyal clientèle. With a kind word and expert advice for every visitor, Venrie ensures that both experienced riders and novices find the perfect mount and gear for their needs. Her dedication and warmth infuse the stable with a welcoming atmosphere, making Fuvont's Mounts and Tack a beloved fixture in the Neverwinter community.
+# ![[Venrie Fuvont.png]]
